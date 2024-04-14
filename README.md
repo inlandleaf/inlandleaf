@@ -6,4 +6,4 @@
 - 💬 Ask me about my experience as a research assistant in nonprofit rehabiliation, and my past experience with VEX Robotics.
 - 📫 How to reach me: zdana@ucsc.edu 
 - 😄 Pronouns: He/Him 
-- ⚡ Fun fact: I played Men's Rugby during my junior and seniors years at UC Santa Cruz.
+- ⚡ Fun fact: I played Men's Rugby during my junior and senior years at UC Santa Cruz.
